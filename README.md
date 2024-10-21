@@ -4,7 +4,7 @@ Hi there! 👋
 
 Find my podfics on [archiveofourown](https://archiveofourown.org/users/kaisicle/pseuds/kaisicle-podfics)
 
-Chat with me on [tumblr](https://kaisicle-podfics.tumblr.com) or [dreamwidth](https://dream)
+Chat with me on [tumblr](https://kaisicle-podfics.tumblr.com) or [dreamwidth](https://kaisicle-podfics.dreamwidth.org/)
 
 Please let me and the original authour know if you enjoyed the story!  \\(^o^)/  I thrive off of feedback! 
 
